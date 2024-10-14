@@ -10,8 +10,7 @@ our host is axel (it/itself) + is most likely to be the one playing but you are 
   - - -
 ## byi
   - - -
-
-- we do not want to label ourselves with 'sys' as a few of us are uncomfortable at the notion of broadcasting that we are alters and/or a system. we have had poor experience with this before. the difference isn't that large but we like to believe those who actually sit to read through our information are people with generally more well intended behavior. 
+  
 - our socializing skill has regressed beyond belief we can be very awkward if prompted without a mutual topic or interest.
 - we don't mind conversation outside of whispers but whispering is the ideal way to talk one on one.
 - minors or anyone below the age of 19 dni.
